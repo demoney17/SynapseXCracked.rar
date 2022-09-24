@@ -1,0 +1,2 @@
+# SynapseXCracked.rar
+SynapseX cracked
